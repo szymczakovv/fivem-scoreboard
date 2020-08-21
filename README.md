@@ -6,6 +6,7 @@ https://gyazo.com/d1770cb437070d6f02fd9d4169b299ac
 https://gyazo.com/10790249c8fd3da13dbe97e5a72c47e4
 <p></p>
 _______________________________________________________________________________
+<p></p>
 https://szymczakovv.pl/
 <p></p>
 https://twitch.tv/szymczakovv
